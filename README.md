@@ -1,4 +1,4 @@
-# 👋 Lukamagic!! I’m @pkknb!
+# 👋 Luka magic!!
 
 ### 👀 About Me
 - 💻 **Tech Explorer**: I’m always diving into new tech and love learning something unexpected.
