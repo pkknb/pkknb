@@ -10,7 +10,7 @@
 - 💡 I'm looking to work on cool projects involving AI, automation, and web development. If you’ve got an idea or need a hand with Python, hit me up!
 
 ### 📫 How to Reach Me
-- ✉️ **Email**: fantanstic_pkk@163/com
+- ✉️ **Email**: fantanstic_pkk@163.com
 - 💬 Feel free to DM me for project ideas or just to say hello! You can also find me in LINKIN!(search pkknb)
 
 ### 😄 Pronouns: He/Him/They
